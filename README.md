@@ -1,6 +1,16 @@
-## Welcome to GitHub Pages
+## Welcome to CLOUD APPROVED TriboTEX!
 
-You can use the [editor on GitHub](https://github.com/DARKINASTAR/nano-up-jekyll/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+I believe cars should have longer longevity and be alot more economical in fuel costs.
+
+My colleagues spent the last ten years doing research, study and development of NEW ADVANCED NANOTECHNOLOGY.
+This is, my people, a REVOLUTIONARY BREAKTHROUGH for our DLCC (Diamond-Like Carbon Coating) is designed to 
+be attracted to friction; kind of like a sticky note, it's slick on one side--sticky on the other!!
+
+When added to engine oil, these NANOSHEETS ATTACH TO METAL SURFACES sticky side down sheet by sheet during engine operation.
+Leaving the slick side facing outward. A porous layer is deposited on internal components after 500 miles of driving.
+CREATING A HIGH PERFORMANCE WEAR- RESISTANT COATING OF OUR ADVANCED NANOTECHNOLOGY.
+
+The Proof Is In The Tube, It's Time to NANO-UP!!!!!!
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 

@@ -1,4 +1,4 @@
-##**C:  509.948.8137**##
+##**C:  509.948.8137**
 
 John says:
   I believe cars should have longer longevity and be alot more economical in fuel costs.
@@ -12,13 +12,12 @@ Leaving the slick side facing outward. A porous layer is deposited on internal c
 **CREATING A HIGH PERFORMANCE WEAR- RESISTANT COATING OF OUR ADVANCED NANOTECHNOLOGY.**
 
 *The Proof Is In The Tube, **It's Time to NANO-UP!! Get particulating world-wide!***
+
 Contact email:  **drcloudnanparticle@gmail.com**
+
 [Link](url) and ![Image](src)
-```
 
 For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-
 
 ### Support or Contact
 

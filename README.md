@@ -1,5 +1,6 @@
 *Authorized Representative*
-##**C:  509.948.8137**
+
+**C:  509.948.8137**
 
 John says:
   I believe cars should have longer longevity and be alot more economical in fuel costs.

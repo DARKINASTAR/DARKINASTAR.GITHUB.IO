@@ -13,11 +13,12 @@ be attracted to friction;** kind of like a sticky note, *it's slick on one side-
 Leaving the slick side facing outward. A porous layer is deposited on internal components after 500 miles of driving.
 **CREATING A HIGH PERFORMANCE WEAR- RESISTANT COATING OF OUR ADVANCED NANOTECHNOLOGY.**
 
---------------------|----------------------------------------|-----------------
+---|---|---
 Big Rig| Big Bertha-Diesel|$350.00
 Big block|Startup pack|$300.00
 small block|a Tube!|$100.00
 small machines|small Tube!|$40.00
+
 *The Proof Is In The Tube, **It's Time to NANO-UP!! Get particulating world-wide!***
 
 Contact email:  **drcloudnanoparticle@gmail.com**

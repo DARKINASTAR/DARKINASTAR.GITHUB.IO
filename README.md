@@ -24,7 +24,7 @@ Leaving the slick side facing outward.
          |small machines |  a small Tube!    |  40.00 |
          |---------------|-------------------|--------|
 
->*The Proof Is In The Tube, **It's Time to NANO-UP!! Get particulating world-wide!***
+*The Proof Is In The Tube, **It's Time to NANO-UP!! Get particulating world-wide!***
 
 Contact email:  **drcloudnanoparticle@outlook.com**
 

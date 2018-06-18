@@ -1,4 +1,4 @@
-#####***JOHN CLOUD SR.,***#####
+####***JOHN CLOUD SR.,***#####
 
 ![](image.png)
 
@@ -16,7 +16,7 @@ be attracted to friction;** kind of like a sticky note, *it's slick on one side-
 >When added to engine oil, these **NANOSHEETS ATTACH TO METAL SURFACES** sticky side down sheet by sheet during engine operation.
 Leaving the slick side facing outward. 
 >A porous layer is deposited on internal components after 500 miles of driving.
-**CREATING A HIGH PERFORMANCE WEAR- RESISTANT COATING OF OUR ADVANCED NANOTECHNOLOGY.**
+**CREATING A HIGH PERFORMANCE WEAR-RESISTANT COATING OF OUR ADVANCED NANOTECHNOLOGY.**
 
          |   Use         |     Type          |  Price |
          |---------------|-------------------|--------|

@@ -1,6 +1,6 @@
 #####***JOHN CLOUD SR.,***#####
 
-!{}(image.png)
+![](image.png)
 
 *Authorized Representative*
 

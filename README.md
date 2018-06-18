@@ -1,8 +1,4 @@
-<h4> **JOHN CLOUD SR.,**
-Format: ![Alt Text](url)
-
-
-
+<h6> JOHN CLOUD SR.,
 
 *Authorized Representative*
 

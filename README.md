@@ -3,11 +3,12 @@
  ![TriboTEX Logo](file:///C:/Users/N-P/Desktop/images/https%20horse_2.gif)
 
 *Authorized Representative*
-
+***FROM MOLECULES TO SUPER PRODUCTS***
+***.......VERY PURE HIGH PERFORMANCE FILM.....***
 **C:  509.948.8137**
 
 John says:
->I believe cars should have longer longevity and be alot more economical in fuel costs.
+>I believe cars should have longer longevity and be very economical in fuel costs.
 
 >My colleagues spent the last ten years doing research, study and development of **NEW ADVANCED NANOTECHNOLOGY**.  
 >This is, my people, a **REVOLUTIONARY BREAKTHROUGH** for our DLCC **(Diamond-Like Carbon Coating) is designed to 

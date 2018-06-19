@@ -3,8 +3,10 @@
  ![TriboTEX Logo](file:///C:/Users/N-P/Desktop/images/https%20horse_2.gif)
 
 *Authorized Representative*
-***FROM MOLECULES TO SUPER PRODUCTS***
-***.......VERY PURE HIGH PERFORMANCE FILM.....***
+
+***.......FROM MOLECULES TO SUPER PRODUCT.........***
+         **.VERY PURE HIGH PERFORMANCE FILM.....**
+
 **C:  509.948.8137**
 
 John says:

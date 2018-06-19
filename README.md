@@ -31,6 +31,8 @@ Leaving the slick side facing outward.
 
 *The Proof Is In The Tube, **It's Time to NANO-UP!! Get particulating world-wide!***
 
+>*"First you put it in the engine oil and mix it...that's how you get the TriboTEX fix-it!*
+
 Contact email:  **drcloudnanoparticle@outlook.com**
 
 [Link](url) and ![Image](src)

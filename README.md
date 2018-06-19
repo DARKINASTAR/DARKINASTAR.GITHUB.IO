@@ -20,10 +20,10 @@ Leaving the slick side facing outward.
 
          |   Use         |     Type          |  Price |
          |---------------|-------------------|--------|
-         |Big Rig        |Big Johnny-Diesel  |$350.00 |
-         |Big block      | Starer 3-pack     | 300.00 |
-         |small block    |    a Tube!        | 100.00 |
-         |small machines |  a small Tube!    |  40.00 |
+         |Big Rig        |Big Johnny-Diesel  |$399.00 |
+         |Big block      | Startup 3-pack    | 289.00 |
+         |small block    |    a Tube!        |  99.00 |
+         |small machines |  a small Tube!    |  49.00 |
          |---------------|-------------------|--------|
 
 *The Proof Is In The Tube, **It's Time to NANO-UP!! Get particulating world-wide!***

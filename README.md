@@ -1,14 +1,14 @@
- ***JOHN CLOUD SR.,***
+   ***JOHN CLOUD SR.,***
  
  ![TriboTEX Logo](file:///C:/Users/N-P/Desktop/images/https%20horse_2.gif)
 
 *Authorized Representative*
 
-***.......FROM MOLECULES TO SUPER PRODUCT.........***
+***.......FROM MOLECULES TO SUPER PRODUCTS.........***
          **.VERY PURE HIGH PERFORMANCE FILM.....**
 
 **C:  509.948.8137**
-
+>*"First you put it in the engine oil and mix it...that's how you get the TriboTEX fix-it!"*
 John says:
 >I believe cars should have longer longevity and be very economical in fuel costs.
 
@@ -31,7 +31,7 @@ Leaving the slick side facing outward.
 
 *The Proof Is In The Tube, **It's Time to NANO-UP!! Get particulating world-wide!***
 
->*"First you put it in the engine oil and mix it...that's how you get the TriboTEX fix-it!*
+
 
 Contact email:  **drcloudnanoparticle@outlook.com**
 
